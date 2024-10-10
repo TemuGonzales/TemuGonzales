@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TemuGonzalesSandoval 7W7 
+- 👋 Hi, I’m @TemuGonzalesSandoval 7w7 
 - 👀 I’m interested in playing roblox with my gf
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on videos with my fav youtuber(platide)
